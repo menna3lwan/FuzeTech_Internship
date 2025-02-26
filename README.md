@@ -51,7 +51,7 @@ This repository is open to contributions. If you have a project idea, a challeng
 
 ## Contact
 
-Feel free to reach out to me via email at [your.email@example.com](mailto:your.email@example.com) or connect with me on LinkedIn.
+Feel free to reach out to me via email at [your.email@example.com](mailto:menna3lwan@gmail.com) or connect with me on LinkedIn.
 
 ---
 
